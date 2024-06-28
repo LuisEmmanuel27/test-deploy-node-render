@@ -1,0 +1,1 @@
+Se retoma lo realizado en el proyecto pasado
